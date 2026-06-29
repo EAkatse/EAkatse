@@ -74,7 +74,7 @@ Check out my work on GitHub:
 
 💼 LinkedIn: [linkedin.com/in/emmanuel-akatse](https://linkedin.com/in/emmanuel-akatse)
 
-🐙 GitHub: [github.com/your-username](https://github.com/your-username)
+🐙 GitHub: [github.com/EAkatse](https://github.com/EAkatse)
 
 ---
 
